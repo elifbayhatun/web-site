@@ -1,2 +1,3 @@
 
-![Adsız tasarım (2)](https://user-images.githubusercontent.com/103332831/193463728-9f51a9f3-1850-4793-ad0d-f49aa0e9ea55.gif)
+
+![Adsız tasarım (2)](https://user-images.githubusercontent.com/103332831/193466201-0c9a20f0-34a7-4b22-987d-9625bdf00055.gif)
